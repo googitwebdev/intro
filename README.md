@@ -7,7 +7,5 @@ Feel free to check our repository we will be uploading Free resourceful files ti
 Thanks and God bless us all.
   
 Patrick John
-
 Goog-it Web Dev
-
 Head Dev
